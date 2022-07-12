@@ -4,7 +4,7 @@
 - 💞️ I would like to work as a freelancer in the future, as a full stack developer.
 
 - 📫 CONTACT:
-- Discord: Paaz_#0021
+- Discord: Mornztar#2361
 - Mail: loisdupasquier21@gmail.com
 
 
